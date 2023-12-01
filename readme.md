@@ -1,1 +1,1 @@
-la madre di studer è un genioa
+la madre di studer è un genioac
